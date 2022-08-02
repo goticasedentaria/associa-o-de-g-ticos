@@ -1,2 +1,1 @@
-# associa-o-de-g-ticos
-associação de góticos anônimos
+primeiroj_2t
